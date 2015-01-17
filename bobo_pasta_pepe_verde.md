@@ -5,7 +5,7 @@
 * 1st Schalottenlök
 * 2st Vitlöksklyftor
 * 1 msk Konjak
-* 2 msk Köttfond
+* 2 msk Köttfond (koncentrerad på flaska! buljongtärning går också bra)
 * 2-5 msk Soya (efter färg och behag)
 * 1-2 dl Rött vin
 * ca 20st Rostade & krossade vitpepparkorn (10st) grönpepparkorn (10st)
