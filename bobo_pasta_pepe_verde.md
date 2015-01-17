@@ -8,7 +8,7 @@
 * 2 msk Köttfond
 * 2-5 msk Soya (efter färg och behag)
 * 1-2 dl Rött vin
-* 10st Rostade & krossade vitpepparkorn + 10 grönpepparkorn
+* ca 20st Rostade & krossade vitpepparkorn (10st) grönpepparkorn (10st)
 * 10-20st Hela grönpepparkorn (efter styrka)
 * 3-5 dl Grädde, 40% (efter behag)
 * 0.5 dl Mjölk
