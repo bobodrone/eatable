@@ -1,4 +1,4 @@
-#Pappas goa lördagspastasås (eller en grönpepparsås med sting)
+#Pappa Bobs goa lördagspastasås (eller en grönpepparsås med sting)
 
 **Ingredienser:**
 
