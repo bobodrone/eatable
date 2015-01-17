@@ -21,7 +21,8 @@ Okej, vi ska börja med att säga att antalet av resp. ingrediens är nästan he
 Den här salsan kan göras enkelt eller helt sjukt komplicerat. Den förstnämna tar betydligt kortare tid och den sistnämnda tar låååång tid. Har man tid är det verkligen värt besväret att göra den långa versionen.
 
 ###Kort version
-(TBC)
+Mixa rubbet och sila bort lite av tomatsaften tills salsan är lite fastare i formen.
 
 ###Lång version
-(TBC)
+Pewh!  
+Will write this in the near future.
