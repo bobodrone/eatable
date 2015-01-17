@@ -1,4 +1,6 @@
-**Pappas Goa Lördags-pasta-sås (eller en grönpepparsås med sting)**
+#Pappas Goa Lördags-pasta-sås (eller en grönpepparsås med sting)
+
+**Ingredienser:**
 
 * 1 schalottenlök
 * 2 vitlöksklyftor
