@@ -1,19 +1,19 @@
-#Pappas Goa Lördags-pasta-sås (eller en grönpepparsås med sting)
+#Pappas goa lördagspastasås (eller en grönpepparsås med sting)
 
 **Ingredienser:**
 
-* 1 schalottenlök
-* 2 vitlöksklyftor
-* 1 msk konjak
-* 2 msk köttfond
-* 2-5 msk soya (efter färg och behag)
-* 1-2 dl rött vin
-* 10 rostade krossade vitpepparkorn + 10 grönpepparkorn
-* 10-20 hela grönpepparkorn (efter styrka)
-* 3-5 dl grädde (efter behag)
-* 0.5 dl mjölk
-* 2 msk vetemjöl
-* 500g+ entrecote
+* 1st Schalottenlök
+* 2st Vitlöksklyftor
+* 1 msk Konjak
+* 2 msk Köttfond
+* 2-5 msk Soya (efter färg och behag)
+* 1-2 dl Rött vin
+* 10st Rostade & krossade vitpepparkorn + 10 grönpepparkorn
+* 10-20st Hela grönpepparkorn (efter styrka)
+* 3-5 dl Grädde, 40% (efter behag)
+* 0.5 dl Mjölk
+* 2 msk Vetemjöl
+* 500g+ Entrecote
 
 ## Gör så här
 
