@@ -29,6 +29,6 @@
 10. Blanda mjölk och vetemjöl och se till att det inte finns några klumpar kvar.
 11. Häll i lite av grädden och mjölk/mjölblandningen i såsen. Rör runt och avgör om du behöver mer grädde efter att såsredningen tar fart och tjocknar till.
 12. Under tider som såsen puttrar kan du fräsa köttet snabbt runt om i en stekpanna.
-13 .När köttet fått lite färg runtom kan du hälla i såsen i stekpannan och låta den koka försiktigt några minuter.
+13. När köttet fått lite färg runtom kan du hälla i såsen i stekpannan och låta den koka försiktigt några minuter.
 14. Servera med nykokt pasta av t ex gnocci-modell.
 15. Skål!
