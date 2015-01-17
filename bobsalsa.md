@@ -5,14 +5,15 @@ Okej, vi ska börja med att säga att antalet av resp. ingrediens är nästan he
 
 * 10 - 20+st tomater
 * Chilis:
-  - 3 - 4st Röd+Grön Chili
-  - 2st Jalapeno
+  - 6 - 10st Röd+Grön Chili
+  - 2 - 4st Jalapeno
   - 1 - 2st Habanero
   - (2st New mexico) Optional. Köpes t ex Extremefood.
   - (2st Ancho) Optional. Köpes t ex Extremefood.
 * 1 - 2st Avlång söt|snack paprika (Eller vanlig röd paprika)
 * 5 - 10 Vitlöksklyftor
 * 1 - 2st Citroner (pressad)
+* En kruka koriander
 * 1 klunk Olivolja
 * Salt och grovmalen svartpeppar
 
