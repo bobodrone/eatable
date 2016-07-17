@@ -17,7 +17,7 @@ ca 4 portioner / Feed 4 soulz
 * 1/2 burk chilipulver (20-30g)
 * 1 tärning/kapsel grönsaksbuljong
 * 1 kruka koriander (med stjälkar)
-* 1 flaska god startöl (ale/pale ale)
+* 1 flaska god starköl (ale/pale ale)
 * 4 msk tomatpuré
 * 2-3 burkar hela tomater
 * 400g kidneybönor
