@@ -1,6 +1,6 @@
 # Hummus
 
-Till 7pers som förrätt
+Till 7 personer som förrätt
 
 ## Ingredienser
 
