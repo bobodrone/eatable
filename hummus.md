@@ -2,7 +2,7 @@
 
 Till 7pers som förrätt
 
-## Ingredianser
+## Ingredienser
 
 2st burkar färdiga kikärtor (2 x 400g)
 7msk kikärtssaft (från burkarna)
