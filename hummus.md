@@ -13,7 +13,7 @@ Till 7pers som förrätt
 - 4msk färskpressad citronsaft
 
 Topping:
--  Paprika-krydda
+-  Paprikapulver
 -  Hackad Koriander eller persilja
 -  Olivolja
 
