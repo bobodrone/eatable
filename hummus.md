@@ -24,4 +24,4 @@ Topping:
 3. Krossa vitlöken och lägg i bunken.
 4. I med Tahini, citronsaft, olivolja, kikärtssaft och havssalt.
 5. Mixa ihop allt med en stavmixer eller matberedare, rejält!
-6. Häll upp snyggt och pudra på lite paprikapulver, hackade örter och pynta lite med några hela kikärtor.
+6. Häll upp snyggt och pudra på lite paprikapulver, hackade örter och pynta lite med några hela kikärtor, ringa till sist lite olivolja ovan på rubbet.
