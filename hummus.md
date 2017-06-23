@@ -4,18 +4,18 @@ Till 7pers som förrätt
 
 ## Ingredienser
 
-2st burkar färdiga kikärtor (2 x 400g)
-7msk kikärtssaft (från burkarna)
-2msk Tahini
-2st krossade vitlöksklyftor
-1tsk krossat havssalt
-6msk Olivolja
-4msk färskpressad citronsaft
+- 2st burkar färdiga kikärtor (2 x 400g)
+- 7msk kikärtssaft (från burkarna)
+- 2msk Tahini
+- 2st krossade vitlöksklyftor
+- 1tsk krossat havssalt
+- 6msk Olivolja
+- 4msk färskpressad citronsaft
 
 Topping:
-* Paprika-krydda
-* Hackad Koriander eller persilja
-* Olivolja
+-  Paprika-krydda
+-  Hackad Koriander eller persilja
+-  Olivolja
 
 ## Hur gör jag?
 
