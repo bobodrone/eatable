@@ -1,4 +1,4 @@
-# Kikärtsbiffar med allvarlig ajvarsås
+# Helt vegetariska Kikärtsbiffar med allvar light ajvarsås
 
 ## Ingredienser
 
