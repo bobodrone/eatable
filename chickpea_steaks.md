@@ -1,4 +1,6 @@
-# Helt vegetariska Kikärtsbiffar med allvar light ajvarsås
+# Helt vegetariska Kikärtsbiffar med allvar light ajvarsås . 
+Receptet improviserades fram tillsammans med Harald och Agge på Blidö, Sommaren 2017.
+
 
 ## Ingredienser
 
