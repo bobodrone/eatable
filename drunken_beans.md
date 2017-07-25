@@ -9,7 +9,7 @@
 - 1 lite gul lök
 - tomatpure
 
-fräs mjukt lök, jalapeno och vitlök en stund.
-i med bönor och öl och pulver
-koka i mellan 20–40 min
-servera
+fräs mjukt lök, jalapeno och vitlök en stund.  
+i med bönor och öl och pulver . 
+koka i mellan 20–40 min . 
+servera . 
