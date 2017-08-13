@@ -3,7 +3,7 @@ Påhittades && Uruppfördes söndagen den 13 augusti 2017
 
 ## Stuff
 
-- 4-5 knippen fint ringlad Salladslök
+- 4-5 st knippen fint ringlad Salladslök
 - 1/2-1 st finhackad Vitlök
 - 2-3 st pressade Lime
 - 1.5-2L Kycklingbuljong
