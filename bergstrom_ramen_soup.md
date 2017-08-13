@@ -11,7 +11,7 @@
 - 1 rejäl bunt Färsk koriander
 - 100-200g (vet faktiskt inte!) Soyabönor (Edmamebönor)
 
-## follow diz:
+## Follow diz:
 
 1. Koka upp buljong på kycklingfond eller buljongtärning och låt puttra lite fint
 2. Koka upp Edamamebönorna i lite salt och skölj dem. Pilla ut de underbart gröna bönorna och lägg åt sidan.
