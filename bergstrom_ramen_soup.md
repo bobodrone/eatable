@@ -3,12 +3,12 @@
 ## Stuff
 
 - 4-5 knippen fint ringlad Salladslök
-- 1/2-1 finhackade Vitlök
-- 2-3st pressade Lime
-- 1.5-2l Kycklingbuljong
-- 4-6st Kycklingfiléer
-- 5-6 fint strimlad Röda chilis
-- 1 rejäl bunt Färsk koriander
+- 1/2-1 st finhackad Vitlök
+- 2-3 st pressade Lime
+- 1.5-2L Kycklingbuljong
+- 4-6 st Kycklingfiléer
+- 5-6 st fint strimlad Röda chilis
+- 1 st rejäl bunt Färsk koriander
 - 100-200g (vet faktiskt inte!) Soyabönor (Edmamebönor)
 
 ## Follow diz:
