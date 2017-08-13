@@ -22,8 +22,8 @@
 7. När det återstår ca två minuter koka upp ramen-nudlarna enligt instruktioner och lägg i edamamerbönorna i buljongen.
 8. Servera i djupa skålar enligt följande tanke:
 
-  a. Lägg i nudlarna i botten
-  b. Häll på buljong och kyckling
-  c. Lägg på 1 ägg i två halvor
-  d. Toppa med färsk röd chili, färsk koriander och slutligen några skvättar Sriracha runt kanterna.
-  e. Ät!
+  - Lägg i nudlarna i botten
+  - Häll på buljong och kyckling
+  - Lägg på 1 ägg i två halvor
+  - Toppa med färsk röd chili, färsk koriander och slutligen några skvättar Sriracha runt kanterna.
+  - Ät!
