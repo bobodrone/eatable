@@ -11,7 +11,7 @@ Påhittades && Uruppfördes söndagen den 13 augusti 2017
 - 5-6 st fint strimlad Röda chilis
 - 1 st rejäl bunt Färsk koriander
 - 1-2 st ägg per person (6-8 st)
-- 100-200g (vet faktiskt inte!) Soyabönor (Edmamebönor)
+- 100-200g (vet faktiskt inte! jag tog en 1/2 fryst pöse) Soyabönor (Edmamebönor)
 
 ## Follow diz:
 
