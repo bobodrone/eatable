@@ -28,4 +28,4 @@ Påhittades && Uruppfördes söndagen den 13 augusti 2017
   - Häll på buljong och kyckling
   - Lägg på 1 ägg i två halvor
   - Toppa med färsk röd chili, färsk koriander och slutligen några skvättar Sriracha runt kanterna.
-  - Ät med pinnar! (och en sådandär klurig koransk soppslev för den rinnande västskan)
+  - Ät med pinnar! (och en sådandär klurig koransk soppslev för den rinnande vätskan)
