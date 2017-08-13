@@ -9,6 +9,7 @@
 - 4-6 st Kycklingfiléer
 - 5-6 st fint strimlad Röda chilis
 - 1 st rejäl bunt Färsk koriander
+- 1-2st ägg per person (6-8 st)
 - 100-200g (vet faktiskt inte!) Soyabönor (Edmamebönor)
 
 ## Follow diz:
@@ -18,7 +19,7 @@
 3. Stek kycklingen i smör/olivolja lite lätt på båda sidor.
 4. Lägg kycklingen i buljongen och häll i den pressade limen samt finhackad vitlök. Låt koka i ca 15-25 minuter beroende på storlek på filéerna.
 5. Under tiden hacka upp röd chili och salladslök och knippas av en hel del från en korianderbuske
-6. Här det återstår ca10 minuter påbörja koka ägg. Äggen ska koka i ca 8 minuter och vara lösa när allt är klart.
+6. Här det återstår ca 10 minuter påbörja koka äggen. Äggen ska koka i ca 8 minuter och vara lösa när allt är klart.
 7. När det återstår ca två minuter koka upp ramen-nudlarna enligt instruktioner och lägg i edamamerbönorna i buljongen.
 8. Servera i djupa skålar enligt följande tanke:
 
