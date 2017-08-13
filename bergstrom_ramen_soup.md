@@ -2,10 +2,10 @@
 
 ## Stuff
 
-- 4-5 knippen Fint ringlad Salladslök
-- 1/2-1 FInhackade Vitlök
+- 4-5 knippen fint ringlad Salladslök
+- 1/2-1 finhackade Vitlök
 - 2-3st pressade Lime
-- 1.5-2l kycklingbuljong
+- 1.5-2l Kycklingbuljong
 - 4-6st Kycklingfiléer
 - 5-6 fint strimlad Röda chilis
 - 1 rejäl bunt Färsk koriander
