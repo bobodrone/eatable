@@ -9,7 +9,7 @@
 - 4-6 st Kycklingfiléer
 - 5-6 st fint strimlad Röda chilis
 - 1 st rejäl bunt Färsk koriander
-- 1-2st ägg per person (6-8 st)
+- 1-2 st ägg per person (6-8 st)
 - 100-200g (vet faktiskt inte!) Soyabönor (Edmamebönor)
 
 ## Follow diz:
