@@ -7,7 +7,8 @@
 - 1 skvätt vispgrädde
 - olivolja
 
-Gör så här: 
+## Gör så här:
+
 1. Häll lite olivolja i en liten kastrull och sätt på värmen.
 2. Hacka den röda chilin i riktigt små bitar och lägg i kastrullen.
 3. Pressa vitlöken ner i kastrullen och rör om med resten. Låt fräsa lite försiktigt några minuter
