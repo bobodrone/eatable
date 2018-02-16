@@ -3,10 +3,10 @@
 ## Ingredienser
 
 - Kycklingfilé
-- limesaft
-- apelsinsaft
+- limesaft (1-2 lime)
+- apelsinsaft (1-2 apelsiner)
 - coca cola (ej zero/light, socker är ett måste!)
-- vitlöksklyftor
+- vitlöksklyftor (5st)
 - soya
 - kryddor
   - chilipulver (mycket!)
