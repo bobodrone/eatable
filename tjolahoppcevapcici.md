@@ -2,14 +2,14 @@
 
 ## Ingredienser
 
-- lammfärs
-- röd chili
-- vitlök
-- färsk mynta
-- färsk koriander
-- färsk persilja
-- chilipulver
-- spiskumming
+- lammfärs (400-800g)
+- röd chili (1-2)
+- vitlök (4-5 klf)
+- färsk mynta (en kruka eller motsvarande)
+- färsk koriander (en halv kruka?)
+- färsk persilja (lite hackad bladpersilja)
+- chilipulver/paprikapulver (efter behag)
+- spiskummin (valfritt)
 - citronsaft
 - mineralvatten
 - ägg
