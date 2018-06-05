@@ -1,8 +1,8 @@
-# Chicken carnitas
+# Chicken (or Pork) carnitas
 
 ## Ingredienser
 
-- Kycklingfilé
+- Kycklingfilé (eller FläskKarré
 - limesaft (1-2 lime)
 - apelsinsaft (1-2 apelsiner)
 - coca cola (ej zero/light, socker är ett måste!)
