@@ -5,7 +5,7 @@
 - 4 st kycklingfiléer (gärna sådana med 30% rabatt)
 - 0-4 chilis (optional)
 - 4 klf vitlök
-- 1st glu lök
+- 1st gul lök
 - 1 buljongtärning med kyckling
 - vatten (2-5dl)
 - smör (ganska mycket)
