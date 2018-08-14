@@ -32,6 +32,7 @@ Påhittades && Uruppfördes tisdagen den 14 augusti 2018
 5. Häll på de torra kryddorna och den pressade lime:n. Rör om.
 6. Häll i tomatpuré. Rör om.
 7. Häll i buljongen och mjölet. Rör om. Låt koa upp.
+7.5 Häll i de tärnade paprikorna och den skivade purjolöken
 8. I med Risoni
 9. Koka i 5 minuter. Rör om.
 10. Häll i grädden, lite i taget så inte värmen försvinner.
