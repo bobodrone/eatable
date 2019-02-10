@@ -7,7 +7,7 @@ Receptet är för 4-6 hungriga personer samt till ett antal matlådor följande 
 - 1 liten burk Rödcurrypasta (ca 100g) (ev mindre om man är känslig!)
 - 3 burkar Kokosmjölk
 - 1 stor Morot (eller 2st mindre) fint strimlade
-- 5-6 Röd chili, fint strimlade 45° vinkel mot gruktens naturliga längdriktning.
+- 5-6 (+4-6 extra för servering) Röd chili, fint strimlade 45° vinkel mot gruktens naturliga längdriktning.
 - 1st Röd och 1st Gul Paprika (fyrkanter om ca 1-2 cm)
 - 1st Gul lök (fyrkanter om 1-2 cm)
 - 1/2 burk Bambuskott (häll av burken och använda hälften)
@@ -25,4 +25,4 @@ Receptet är för 4-6 hungriga personer samt till ett antal matlådor följande 
 4. Häll i bambuskott, socker, limeblad, buljong och det resterande av kokosmjölken och låt puttra i 10-15 minuter.
 5. Lägg i morot, lök, vitlök, paprika, chili och koka i ytterligare 5-15 minuter.
 6. Lägg i thaibasilika och färsk koriander och salta.
-7. Ät.
+7. Servera med 4-6 röda chili hackade/skivade vid sidan av i tillägg.
