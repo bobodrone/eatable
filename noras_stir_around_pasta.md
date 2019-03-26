@@ -6,7 +6,7 @@
 4. Lägg 1 pkt fettucine eller tagliatelle i kokande vatten (koka totalt ca 1 minut minus orginaltiden (4-5 minuter) ) (rör om och vänta en stund)
 5. I med 1st Tärnad paprika + 2-3 msk fryst gräslök i lök + köttröran (rör om och vänta en stund)
 6. I med en ca 2-3msk Tomatpuré + 1st grönsaksbuljongtärning (rör om och vänta en stund)
-7. Håll i rejäl skvätt kinesisk, japansk eller nordkoreansk(!) soja (rör om och vänta en stund)
+7. Häll i rejäl skvätt kinesisk, japansk eller nordkoreansk(!) soja (rör om och vänta en stund)
 8. Lägg till en kartong krossade tomater (400-500g) (rör om och vänta en stund)
 X. Optional: Lägg i valfri mängd rörsocker (rör om och vänta en stund)
 9. I med en skvätt matlagningsgrädde (1-2dl) + salladslökringar + färsk basilika (rör om och vänta en stund)
