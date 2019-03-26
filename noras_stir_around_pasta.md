@@ -1,6 +1,6 @@
 # Gör så här
 
-1. Häll i någrqa klickar smör + en skvätt olivolja (rör om och vänta en stund)
+1. Häll i några klickar smör + en skvätt olivolja (rör om och vänta en stund)
 2. Lägg i 1st Grovhackad Rödlök(rör om och vänta en stund)
 3. Bryn 500g Kött/Entrecote i strimlor (rör om och vänta en stund)
 4. Lägg 1 pkt fettucine eller tagliatelle i kokande vatten (koka totalt ca 1 minut minus orginaltiden (4-5 minuter) ) (rör om och vänta en stund)
@@ -14,7 +14,7 @@ X. Optional: Lägg i valfri mängd rörsocker (rör om och vänta en stund)
 11. När pastan är nästan klar (minst två minuter kvar) lägg i broccolin i det kokande PASTAVATTNET (rör om och vänta en stund)
 12. När pastan är en minut från klar vänd ner pastan+broccoli i köttröran (minus pastavattnet dock) och häll i ca 1-2 dl riven parmesanost och 0.5-1 tärnad mozzarellaost i geggan (rör om och vänta en stund)
 13. Häll i ca en 1-2 dl grädde till. Alltid bra att var förberedd (rör om och vänta en stund)
-13. Servera rubbet med en skål mozzarellaost bredvid (rör om och vänta en stund)
-14. (rör om och vänta en stund)
+14. Servera rubbet med en skål mozzarellaost bredvid (rör om och vänta en stund)
+15. (rör om och vänta en stund)
 
 ## Mums!!!
