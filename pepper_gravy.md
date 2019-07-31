@@ -21,7 +21,7 @@ ca 4-8 portioner / Feed 4-8 soulz
 ## Tillagning
 
 1. Smält en rejäl klick smör i en stor kastrull
-2. Skär upp löken och paprikan/chilin i 0.5-1cm-stora bitar (grovt)
+2. Skär upp löken och paprikan/chilin i 0.5-1 cm stora bitar (grovt)
 3. Lägg i löken och låt puttra i smören på medelhög värme i ca 5 min
 4. Lägg sedan i paprikan & chilin och fräs tillsammans med löken och låt puttra i ytterligare ca 5 min
 5. Lägg i klicken med tomatpure och buljongtärningen och rör runt lite och låt det fräsa i 1-2 min
