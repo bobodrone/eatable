@@ -31,4 +31,4 @@ ca 4-8 portioner / Feed 4-8 soulz
 9. Lägg tillbaka kastrullen på spisplattan och komplettera med en klick smör, salt och nymalen svartpeppar
 10. Ät och njut.
 
-[Links to more fun food to be made](#)
+[Links to more fun food to be made](https://github.com/bobodrone/eatable)
