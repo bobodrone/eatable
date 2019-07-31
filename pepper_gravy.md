@@ -6,7 +6,7 @@ ca 4-8 portioner / Feed 4-8 soulz
 
 * 1-2 st Gul lök
 * 2-4 st Schalotten lök
-* 2st Röd lök (valfri)
+* 1 st Röd lök (valfri)
 * 4-6 klf vitlök
 * 1-2 st Gul paprika
 * 2-4 st Röd Paprika
