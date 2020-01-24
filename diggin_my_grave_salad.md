@@ -1,4 +1,4 @@
-# King sallad of Masthugget
+# Diggin´m Grave Salad
 
 ## Ingredienser: (för en person)
 
