@@ -1,4 +1,4 @@
-# Diggin´m Grave Salad
+# Diggin´ My Grave Salad
 
 ## Ingredienser: (för en person)
 
