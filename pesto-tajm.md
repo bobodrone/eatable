@@ -7,6 +7,7 @@
 - 2-4 dl finriven parmesanost
 - 1,5-2dl olivolja
 - 0.5-1 dl pinjenötter
+- valfri pasta men spagetti eller pici är att föredra.
 
 ## Pesto Instruczione:
 1. Pesto basic mixup
