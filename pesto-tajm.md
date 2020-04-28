@@ -8,6 +8,8 @@
 - 1,5-2dl olivolja
 - 0.5-1 dl pinjenötter
 - valfri pasta men spagetti eller pici är att föredra.
+- 2st mozzarella-ostar
+- ruccolasallad
 
 ## Pesto Instruczione:
 1. Pesto basic mixup
@@ -23,12 +25,14 @@
 
 3. Samtidigt kan du hälla de resterande 20% av pinjenötterna i en torr stekpanna och försiktigt rosta dem tills de blir lite bruna. Akta så de inte bränns!
 
+3b) Tärna mozzarellan och lägg upp i en skål.
+
 4. Värm försiktigt upp en stor djup stekpanna och lägg i pestogeggan däri och låt den bara bli pyttelite varm, lagom tills att pastan har ca en minut kvar. Lyft då i pastan från pastakastrullen ner i stekpannan med pesto och blanda väl. Låt pastan koka/värma sig färdig den sista minuten i stekpannan. 
 Ta bort pannan från plattan och ställ på bordet. 
 
 5. Riv en mer parmessan ost över stakpannan samt lägg över de rostade pinjenötterna i pannan. 
 6. Slutligen ta de resterande bladen från den tredje basilikakrukan och lägg på toppen av pastan.
 
-7. Servera direkt från pannan och njut!
+7. Servera direkt från pannan och njut tillsammans med ruccolasallad, extra basilikablad samt mozzarellaosten!
 
 // Bobo & Nora
