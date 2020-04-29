@@ -4,14 +4,14 @@
 
 ### De platta köttbullarna
 - 1000g nötfärs
-- 1 pkt god bacon (ca 200g)
+- 1 pkt god bacon (ca 150-200g)
 - 2-3 dl riven parmesanost
-- 1 stor finhackad gul lök
+- 1 st stor finhackad gul lök
 - 4 msk ströbröd
 - 2 msk potatismjöl
-- 3dl mjölk
-- 3 ägg
-- Potatis till laget runt (2 varv!) på valfritt sätt (klyftor i ugn e gott!)
+- 3 dl mjölk
+- 3 st ägg
+- Potatis till laget runt (minst 2 varv!) på valfritt sätt (klyftor i ugn e gott!)
 
 ### Lökgegga/Sky
 - 3-5 st stora gula lökar i ringar
