@@ -1,4 +1,4 @@
-# Mormors Platta Köttbullar (Bobo REMIX)
+# Mormors Maj-Lens Platta Köttbullar (Bobo REMIX)
 
 ## Ingredienser
 
@@ -26,6 +26,11 @@
 
 1) Blanda ströbröd och potatis med mjölken i en bunke. Låt stå i minst 10 minuter
 2) Under tiden ströbrödet stelnar till; riv osten och fin hacka baconet.
-3) Lägg i ost och bacon samt ägg, salt och peppar i bunken och rör om lite.
+3) Lägg i ost och bacon samt ägg, löken, salt och peppar i bunken och rör om lite.
 4) I med nötfärsen och rör om så att allt blir blandat men inte för mycket!
-5) 
+5) Skär de 3-5 st gula lökarna i halvtjocka skivor och bryn försiktigt i mycket smör.
+6) Gör riktigt stora köttbullar och platta till dem till något som liknar Pannbiff.
+7) Börja steka de försiktigt, inte för många i taget. Lägg de färdiga i en form med aluminium över.
+8) När den gula löken börjar få lite färg häll på socker, vatten, buljontärning och en skvätt soya samt pressa över limen.
+9) Om man gör många platta köttbullar kan man med fördel bryna dem lite lätt runt om och sedan lägga in alla i en form i ugnen. Funkar speciellt bra om man samtidigt gör t ex potatis i klyftor. Lägg då de platta bullarna under potatisen och vänd dem ett par gånger under ca 10-15-20 minuter (beroende på ung och värme förstås).
+10) Servera med rårörda lingon och en god sallad.
