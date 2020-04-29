@@ -13,6 +13,7 @@
 - 2 msk potatismjöl
 - 3 dl mjölk
 - 3 st ägg
+Kryddor: Spiskummin, malen koriander, vitlökspulver, salt och kvarnmalen svartpeppar
 - Potatis till laget runt (minst 2 varv!) på valfritt sätt (klyftor i ugn e gott!)
 
 ### Lökgegga/Sky
