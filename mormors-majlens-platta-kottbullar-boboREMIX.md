@@ -1,4 +1,4 @@
-# Mormors Maj-Lens Platta Köttbullar (Bobo REMIX)
+# Mormor Maj-Len's Platta Köttbullar (Bobo REMIX)
 
 ## Ingredienser
 
@@ -13,7 +13,7 @@
 - 3 ägg
 - Potatis till laget runt (2 varv!) på valfritt sätt (klyftor i ugn e gott!)
 
-### Lökgegga
+### Lökgegga/Sky
 - 3-5 st stora gula lökar i ringar
 - Rätt mycket smör
 - 1 st grönsaksbuljongtärning
