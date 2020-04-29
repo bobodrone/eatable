@@ -36,3 +36,7 @@
 8) När den gula löken börjar få lite färg häll på socker, vatten, buljontärning och en skvätt soya samt pressa över limen.
 9) Om man gör många platta köttbullar kan man med fördel bryna dem lite lätt runt om och sedan lägga in alla i en form i ugnen. Funkar speciellt bra om man samtidigt gör t ex potatis i klyftor. Lägg då de platta bullarna under potatisen och vänd dem ett par gånger under ca 10-15-20 minuter (beroende på ung och värme förstås).
 10) Servera med rårörda lingon och en god sallad.
+
+---
+
+*Notera att receptet är helt fritt påhittat/inspirerat och ska inte blandas ihop med Mormor Maj-lens orginalrecept.*
