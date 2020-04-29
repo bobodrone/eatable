@@ -1,6 +1,6 @@
 # Mormor Maj-Len's Platta Köttbullar (Bobo REMIX)
 
-> "- Det heter inte Pannbiff, det heter Stora platta köttbullar!"
+> "Barnen: - Det heter inte Pannbiff, det heter Stora platta köttbullar!"
 
 ## Ingredienser
 
