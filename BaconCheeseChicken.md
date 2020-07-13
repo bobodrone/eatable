@@ -14,13 +14,13 @@ Till ca 10-14 kycklingfiléer. För mindre mängd, halvera det mesta.
 
 ## Gegga    
 - 5dl riven parmasanost    
-- 1 kruka timjan    
-- 1 kruka gräslök    
-- (1 kruka koriander) valfri    
+- 1 kruka timjan (lika mycket för 6st filér)
+- 1 kruka gräslök (lika mycket för 6st filér)
+- (1 kruka koriander) valfri (lika mycket för 6st filér)
 
 ## Kött    
 10-14 Kycklingfiléer    
-2-3 baconskivor per kycklingfilé    
+2-3 baconskivor per kycklingfilé (totalt ca 1kg)    
 
 # Så är gör du
 
