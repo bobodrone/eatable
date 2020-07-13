@@ -55,5 +55,5 @@ Till ca 10-14 kycklingfiléer. För mindre mängd, halvera det mesta.
 
 ### Grill (klot) 
 - Samma sak som ovan fast fyll din kolgrill med briketter och sätt igång!    
-- Tips: använda hickory/apple eller annan träbit/flis för att ge den en rökaigare smak.   
+- Tips: använda hickory/apple eller annan träbit/flis för att ge den en rökigare smak.   
 - Använd lock på grillen!    
