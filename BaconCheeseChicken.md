@@ -32,4 +32,18 @@ Peppar
 - Låt stå i någon timme
 
 ## Förbered geggan
+- Riv massa parmesanost
+- Hacka upp gräslök, timjan (och ev koriander)
+- Blanda ihopa
+
+## Sättihopa
+- Lägg två-tre baconskivor bredvid varandra på bredden
+- Lägg en kycklingfilé tvärs över de tre baconskivorna (lägg dem vid ena kanten av baconen)
+- Lägg i fyllningen inuti kycklingen
+- Rulla baconet runt kycklingen och försök täcka hela kycklingen.
+- OM det hjälper sätt in 1-2 tandpetare för att hålla baconet på plats.
+
+
+## Grilla eller ungna
+- Värm ugn till ca 125-150 grader.
 - 
