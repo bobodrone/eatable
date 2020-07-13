@@ -45,5 +45,15 @@ Peppar
 
 
 ## Grilla eller ungna
+
+### Ugn
 - Värm ugn till ca 125-150 grader.
-- 
+- Lägg kycklingfiléerna på en smord plåt mitt i ugnen
+- Låt dem sakta stekas i ugn tills de har en innertemperatur på åtminstone 67 grader.
+- Vänd dem en gång under tiden vid behov.
+- Tips man kan lägga på en glaze med en rökig smak efter halva tiden
+
+### Grill (klot)
+- Samma sak som ovan fast fyll din kolgrill med briketter och sätt igång!
+- Tips: använda hickory/apple eller annan träbit/flis för att ge den en rökaigare smak.
+- Använd lock på grillen!
