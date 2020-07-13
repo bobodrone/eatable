@@ -49,7 +49,7 @@ Till ca 10-14 kycklingfiléer. För mindre mängd, halvera det mesta.
 ### Ugn
 - Värm ugn till ca 125-150 grader.    
 - Lägg kycklingfiléerna på en smord plåt mitt i ugnen    
-- Låt dem sakta stekas i ugn tills de har en innertemperatur på åtminstone 67 grader.    
+- Låt dem sakta stekas i ugn tills de har en innertemperatur på åtminstone 67-69 grader. (De bör komma upp i 70+ efter man låtit dem ligga en stund)
 - Vänd dem en gång under tiden vid behov.    
 - Tips man kan lägga på en glaze med en rökig smak efter halva tiden    
 
