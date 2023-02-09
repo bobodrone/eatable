@@ -20,10 +20,10 @@
 
 ## Gör så här
 
-1. Skär kycklingfilérna (eller FläskKarré) i små bitar
+1. Skär kycklingfilérna (eller FläskKarré) i små bitar, ca 4x4 cm
 2. Blanda de torra kryddrorna och gnugga in dem i kycklingen (eller FläskKarré) noga.
 3. Pressa sedan över lime och apelsinsaften, samt häll på lite soya och den hackade viklöken, rör om och låt marinera några timmar i kylskåp.
 4. Ta fram kycklingen (eller FläskKarré) i marinaden och plocka upp kycklingbitarna (eller FläskKarré) ur marinaden och ställ marianden åt sidan för nu.
 5. Stek kycklingen (eller FläskKarré) i smör och när det fått lite färg kan du hälla över marinaden igen. 
 6. Håll på Coca Cola så att det täcker kycklingen (eller FläskKarré) och fyll på om det behövs. 
-7. Småkoka i ett par-tre-fyra timmar (beroende på typ av kött!.
+7. Småkoka i ett par-tre-fyra timmar i en stor gryta (beroende på typ av kött!
