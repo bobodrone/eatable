@@ -1,4 +1,4 @@
-# Vera Like My Asian Meet
+# Vera Likes My Asian Meet
 
 * natural oil
 * 800-1000g minced meat
