@@ -11,7 +11,7 @@
 * chinese soya souce
 * white suger, raw suger
 * fresh red chili
-* salt n pepa
+* salt n pepa && chili flakes
 * spring onion
 * pineapple
 * jasmin rise
